@@ -112,7 +112,7 @@ Recipe-sharing web platform
 
 ## 🌐 Connect With Me
 
-- 💼 LinkedIn: **https://www.linkedin.com/in/Koushik%20S%20Jain**
+- 💼 LinkedIn: **www.linkedin.com/in/koushik-s-jain-5361ba228**
 - 📧 Email: **kkoushikjain@gmail.com**
 
 ---
