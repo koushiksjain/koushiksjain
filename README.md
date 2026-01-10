@@ -1,4 +1,4 @@
-# 👋 Hi, I'm MaddyMoody
+# 👋 Hi, I'm Koushik S Jain
 
 🚀 **Emerging Tech Developer | Full Stack Developer | AI/ML Enthusiast**
 
